@@ -1,4 +1,4 @@
-### Olá! Eu sou o Gustavo Carvalho, estudante de Análise e Desenvolvimento de Sistemas! 🧔 
+### Olá! Eu sou o Gustavo de Carvalho, administrador graduado e futuro programador! 🧔 
 ##
 
 <div align="center">
